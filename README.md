@@ -1,0 +1,1 @@
+# kashiko-privacy-policy
